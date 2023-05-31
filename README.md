@@ -1,1 +1,0 @@
-# what-is-wikipedia.github.io
